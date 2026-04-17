@@ -17,6 +17,6 @@ https://www.markdownguide.org/cheat-sheet/ aprendo mark down aqui kkkkkk
 
 
   - Primer:  
-  Dos amigos/ compañeros de trabajo estan trabajando en un proyecto de técnologia y accidentalmente descubren una manera de viajar en el tiempo, después de eso ellos empiezan a experimentar con sus propias vidas, creando multiples versiones de si mismos y alterando eventos en la línea temporal.
+  Dos amigos/ compañeros de trabajo estan trabajando en un proyecto de técnologia y accidentalmente descubren una manera de viajar en el tiempo, después de eso ellos empiezan a experimentar con sus propias vidas, creando multiples versiones de si mismos y alterando eventos en la línea temporal.  
   la narrativa de la historia es complicada de entender y poco explicativa, los diálogos tecnicos y la línea que sigue la pelicula complica entenderla, a medida que sigue avanzando la historia, los eventos alterados y las acciones de los personajes se vuelven más confusas.
   Es difícil ententer la película con solo una vista, pero en general es bastante interesante,aunque no la haya entendido del todo, la recomiendo. plantea ideas interesantes sobre como funciona el tiempo y como funcionaría el viajar en el tiempo.
